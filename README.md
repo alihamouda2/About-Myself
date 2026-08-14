@@ -17,7 +17,7 @@ Passionate about building scalable enterprise web systems, robust backend infras
 ### 📫 Let's Connect!
 
 * 💼 [LinkedIn](https://linkedin.com/in/ali-fahmi) - Professional Profile
-* 📧 Email: 3li.bitmaster@gmail.com
+* 📧 Email: alihamouda.e@gmail.com
 
 ### 🎯 Currently
 
